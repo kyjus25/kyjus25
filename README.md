@@ -17,7 +17,7 @@ Resume:  [Justin White - Resume](https://justinwhite.info/assets/downloads/Justi
 
 📫 ***How to reach me:***<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- [Email](mailto:kyjus25@gmail.com)<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- [LinkedIn](linkedin.com/in/justin-white-540972123)<br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- [LinkedIn](https://linkedin.com/in/justin-white-540972123)<br>
 
 ⚡ ***Fun facts:***<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- I love SpaceX! 🚀<br>
